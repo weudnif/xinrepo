@@ -54,4 +54,4 @@ I may update our Privacy Policy from time to time. Thus, you are advised to revi
 
 Contact Us
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at dxnad1@163.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at 1240453260@qq.com.
